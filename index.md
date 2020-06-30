@@ -12,11 +12,10 @@ He is doing very weird thing because it is ver hot at his surrounding.
 
 
 
-
-
+<img src="https://www.heraeus.com/media/media/hen/media_hen/stage/Corus_steelplant_image_w1760_h700.jpg"/>
 
  
 The Knight said:
 
-> I'v been th biggest looser
+> I'v been the biggest looser
 > of the world
